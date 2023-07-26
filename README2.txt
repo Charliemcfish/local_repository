@@ -1,1 +1,1 @@
-Omg me tooecho Hi im a readMe >> README1.txtecho Hi im a readMe >> README1.txt! :)
+Hi im a readMe too holy shit!
